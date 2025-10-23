@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hey 👋:
 I'm Sami, a 21 years old App developer from India. 
 
 
